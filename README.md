@@ -1,7 +1,7 @@
 ### Hi there 👋 my name is Vladislavs.
 
 
-🏆 **Professional Athlete Turned Developer**
+🏆 **From Professional Athlete to Developer: My Journey of Transformation**
 
 I've always been passionate about pushing my limits, and my journey as a professional athlete has played a significant role in shaping who I am today. Over the years, I've had the privilege of competing at the highest level in my sport, dedicating myself to continuous improvement, discipline, and unwavering commitment to my goals.
 
