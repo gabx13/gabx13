@@ -11,7 +11,7 @@ The football taught me the value of determination, resilience, and teamwork. Whe
 
 📚 **Current Journey at 42 Wolfsburg Coding School**
 
-Today, I'm taking my passion for challenges and excellence to the world of coding. I'm currently studying at 42 Wolfsburg coding school, where I'm diving deep into the fascinating world of software development. The same dedication that fueled my athletic career now drives my pursuit of coding mastery.
+Today, I'm taking my passion for challenges to the world of coding. I'm currently studying at 42 Wolfsburg coding school, where I'm diving deep into the fascinating world of software development. The same dedication that fueled my athletic career now drives my pursuit of coding mastery.
 
 🌟 **Endless Curiosity**
 
